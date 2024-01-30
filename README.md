@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding and learning
 - 🌱 I’m currently learning ... datebase  management
 - 💞️ I’m looking to collaborate on ... no
-- 📫 How to reach me ... mail-jnyantushar@gmail.com
+- 📫 How to reach me ... jnyantushar@gmail.com
 - 😄 Pronouns: ...--
 - ⚡ Fun fact: ...i'm coder
 
